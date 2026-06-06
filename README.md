@@ -32,14 +32,14 @@ I focus on:
 ---
 
 ## 🌐 Portfolio
-👉 https://your-portfolio-link.com
+👉 https://situballevi30.github.io/LeviSitubal.github.io/
 
 ---
 
 ## 📫 Contact
-- Facebook: https://facebook.com/your-profile  
-- Instagram: https://instagram.com/your-profile  
-- Email: your-email@gmail.com  
+- Facebook: https://www.facebook.com/levi.situbal
+- Instagram: https://www.instagram.com/l3baii?igsh=NXBxcTJ4OGhkbmln&utm_source=qr
+- Email: naungayanlevi01@gmail.com 
 
 ---
 
